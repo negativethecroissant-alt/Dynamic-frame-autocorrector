@@ -1,0 +1,1 @@
+gd mod sum shi
